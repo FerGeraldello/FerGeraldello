@@ -1,4 +1,4 @@
-Hi!👋 My name is **Fernanda Geraldello**, I'm 24 years-old. I graduated in Publicity and Advertisiment in 2017. Currently I've been studying Developing and Analyzis of Systems and I have a post graduation in Management of Digital Media. 
+Hi!👋 My name is **Fernanda Ghirardello**, I'm 29 years-old. I graduated in Developing and Analysis of Systems in 2022.
 
 Here are some ideas to get you started:
 
